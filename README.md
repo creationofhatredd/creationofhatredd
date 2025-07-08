@@ -1,3 +1,5 @@
-shedletskys #1 hater
+I panic a lot , crowd discomf, if i unfriend you you've made me or my friends uncomfortable.
 
-( if i randomly fork your resprosity or wtv it's my little brother doing it, whenever im busy he always does this. i'm sorry./srs )
+Shedletskys #1 hater
+
+brighteyes #1 fan
