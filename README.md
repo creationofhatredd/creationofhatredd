@@ -1,9 +1,3 @@
-I can get headaches easily, please don't use bright skins around me.
-
-I panic a lot , crowd discomf, if i unfriend you you've made me or my friends uncomfortable.
-
-Shedletskys #1 hater
-
-brighteyes #1 fan
-
-#1 taph fan !! :D
+Hey! my names cheese // spawn // two time. 
+I used to be known as "Barbiewiree" and "brvkenspawn" I would not like to be reminded of any of these accounts in any way.
+My youtube channel is @C4NDY4PPLE / Tw0time! Goal to 100 subscribers, 88/100!
