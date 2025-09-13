@@ -1,4 +1,2 @@
-<img width="443" height="180" alt="image" src="https://github.com/user-attachments/assets/6b6792a1-eee4-42d8-be37-e7362de3e30d" />
 
-`You win, okay? you're the best clicker ever. now please, I'm begging you..`
-
+<img width="356" height="200" alt="image" src="https://github.com/user-attachments/assets/efa3eee9-4f82-4b95-87de-b45632b0f872" />
