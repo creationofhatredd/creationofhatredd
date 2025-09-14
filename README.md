@@ -1,3 +1,4 @@
-`How could you? how could you be so cruel? You- You've disfigured me!`
+<img width="921" height="574" alt="Screenshot 2025-09-14 19 17 24" src="https://github.com/user-attachments/assets/18d3008e-9c9d-487c-ad65-92cee705d4d6" />
 
-please follow my c.ai acc or chat with my bots !!😸
+
+ ꥟ .
